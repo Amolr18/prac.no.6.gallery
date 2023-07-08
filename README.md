@@ -1,0 +1,1 @@
+# prac.no.6.gallery
